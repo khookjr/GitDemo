@@ -1,3 +1,0 @@
-**Star Wars**
-*Episode III*
-
